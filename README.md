@@ -1,2 +1,2 @@
 # Resume
-![Ali_Daana_CV](https://user-images.githubusercontent.com/89392317/139555925-844aa066-61e2-4652-a19b-591f46e23ebb.png)
+![Ali_Daana_CV-1](https://user-images.githubusercontent.com/89392317/141639256-581a1931-3175-42a1-9bcb-a3ae464b0d83.png)
